@@ -1,5 +1,4 @@
-- weird user name ikr
-- whatever lol
+- literally 辣鸡
 
 <!---
 naujgnaw/naujgnaw is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
